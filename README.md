@@ -1,0 +1,2 @@
+# thebestfromjapan.com
+thebestfromjapan.com
